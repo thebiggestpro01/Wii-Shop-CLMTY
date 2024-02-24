@@ -1,0 +1,1 @@
+This is pretty much a website test I am gonna try to use to create myself my own Wii Shop page with html, making the website itself was pretty short but now it's taking me days to be able to publish this as an website. Appreciate your support. Maybe we can try using this discvoery to actually create Wii Shop Revivals!
